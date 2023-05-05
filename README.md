@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+My name is Mo Chen and I work as a Data & Analytics Analyst within the Financial Services Industry. I have a Bachelor’s degree in Economics and a Master’s degree in Finance and Economics.
+
 <!--
 **mochen862/mochen862** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
