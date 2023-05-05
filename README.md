@@ -2,9 +2,17 @@
 
 I work as a 📊 Data & Analytics Analyst within the 💵 Financial Services Industry. I have a Bachelor’s degree in Economics and a 📖 Master’s degree in Finance and Economics.
 
-I really enjoy connecting with like-minded data people, sharing my skills, experience and personal journey within the world of data - which is why I started my YouTube channel [@data with mo](https://www.youtube.com/@datawithmo) 📹
+I really enjoy connecting with like-minded data people, sharing my skills, experience and personal journey within the world of data. 
 
-You can also check out my data roadmap at [datawithmo.com](https://datawithmo.com/) 🛣️
+📹 YouTube ➡︎ [@datawithmo](https://www.youtube.com/@datawithmo)
+
+🛣️ Data Analyst Roadmap ➡︎ [https://datawithmo.com/](https://datawithmo.com/)
+
+Connect with me on IG ➡︎ [@mo_chen1](https://www.instagram.com/mo_chen1/)
+
+Find me on LinkedIn ➡︎ [@mochen862](https://www.linkedin.com/in/mochen862/)
+
+
 
 <!--
 **mochen862/mochen862** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
