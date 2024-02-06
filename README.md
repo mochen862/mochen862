@@ -8,9 +8,13 @@ I really enjoy connecting with like-minded data people, sharing my skills, exper
 
 🛣️ Data Analyst Roadmap ➡︎ [https://mochen.info/](https://mochen.info/)
 
-Connect with me on IG ➡︎ [@mo_chen1](https://www.instagram.com/mo_chen1/)
+📲 Connect with me on IG ➡︎ [@mo_chen1](https://www.instagram.com/mo_chen1/)
 
-Find me on LinkedIn ➡︎ [@mo-chen1](https://www.linkedin.com/in/mo-chen1/)
+🏢 Find me on LinkedIn ➡︎ [@mo-chen1](https://www.linkedin.com/in/mo-chen1/)
+
+💬 Discord ➡︎ [Mo Chen](https://discord.gg/DSFZ3M3kkZ)
+
+🎓 Mentoring ➡︎ [1:1 Sessions](https://topmate.io/mochen)
 
 
 
