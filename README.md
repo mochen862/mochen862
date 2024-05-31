@@ -6,15 +6,13 @@ I really enjoy connecting with like-minded data people, sharing my skills, exper
 
 📹 YouTube ➡︎ [@mo-chen](https://www.youtube.com/channel/UCDybamfye5An6p-j1t2YMsg)
 
-🛣️ Data Analyst Roadmap ➡︎ [https://mochen.info/](https://mochen.info/)
+🛣️ Make Money with My Data Analysis Resources ➡︎ [https://mochen.info/data-guide/](https://mochen.info/data-guide/)
 
 📲 Connect with me on IG ➡︎ [@mo_chen1](https://www.instagram.com/mo_chen1/)
 
-🏢 Find me on LinkedIn ➡︎ [@mo-chen1](https://www.linkedin.com/in/mo-chen1/)
+🏢 Daily Tips on LinkedIn ➡︎ [@mo-chen1](https://www.linkedin.com/in/mo-chen1/)
 
-💬 Discord ➡︎ [Mo Chen](https://discord.gg/DSFZ3M3kkZ)
-
-🎓 Mentoring ➡︎ [1:1 Sessions](https://topmate.io/mochen)
+💬 Join Our Data Community on Discord ➡︎ [Mo Chen](https://discord.gg/DSFZ3M3kkZ)
 
 
 
