@@ -6,7 +6,7 @@ I really enjoy connecting with like-minded data people, sharing my skills, exper
 
 📹 YouTube ➡︎ [@mo-chen](https://www.youtube.com/channel/UCDybamfye5An6p-j1t2YMsg)
 
-🛣️ Make Money with My Data Analysis Resources ➡︎ [https://mochen.info/data-guide/](https://mochen.info/data-guide/)
+🛣️ Get access to my exclusive data analysis content ➡︎ [https://mochen.info/data-guide/](https://mochen.info/data-guide/)
 
 📲 Connect with me on IG ➡︎ [@mo_chen1](https://www.instagram.com/mo_chen1/)
 
