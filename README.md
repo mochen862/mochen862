@@ -2,7 +2,7 @@
 
 I work as a Data & Analytics Analyst within the Financial Services Industry. I have a Bachelor’s degree in Economics and a Master’s degree in Finance and Economics.
 
-I really enjoy connecting with like-minded data people, sharing my skills, experience and personal journey. I create content around tech, data, career, productivity and life in general.
+My ultimate goal is to help you become better at data analysis in the fastest, most efficient way - so that you can get a better job and do something you actually enjoy doing, for more money.
 
 📹 YouTube ➡︎ [@mo-chen](https://www.youtube.com/channel/UCDybamfye5An6p-j1t2YMsg)
 
